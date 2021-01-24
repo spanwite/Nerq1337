@@ -1,6 +1,6 @@
 ### Hi 👋
 
-<img src="https://i.pinimg.com/originals/a9/b6/3c/a9b63ce2b680a41b3de990f9e1bb3bdb.gif" width="350"/>
+![](https://psv4.userapi.com/c812725/u141839411/docs/024fc456245c/papich_dance.gif?extra=Zk6RGY7SPQOUb1JqPYlEkbK3RfWwQcCs_Et73l_l9mcOT8dcM2pOCs9cQlixxK_e8SgAIKgG6It0mSKhHifFKS4t9xpRbGi7ROhOpmEcQBDRcu69nExG9DmtIQHxDD8aItFSPjoigVD89FjZrfwyycU)
 
 <!--
 **Nerq1337/Nerq1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
