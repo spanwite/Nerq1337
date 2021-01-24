@@ -1,4 +1,4 @@
-### [VK](https://vk.com/nerq1337)
+### Hi 👋
 
 <!--
 **Nerq1337/Nerq1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
