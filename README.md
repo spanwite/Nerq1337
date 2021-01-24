@@ -1,6 +1,6 @@
 ### Hi 👋
 
-!()[https://i.pinimg.com/originals/4d/00/cf/4d00cf4d37ae387d6f34738e7c70ea04.gif]
+![](https://i.pinimg.com/originals/4d/00/cf/4d00cf4d37ae387d6f34738e7c70ea04.gif)
 
 <!--
 **Nerq1337/Nerq1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
