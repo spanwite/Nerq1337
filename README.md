@@ -1,4 +1,4 @@
-### Hi 👋
+### Hi
 
 ![](https://psv4.userapi.com/c812725/u141839411/docs/024fc456245c/papich_dance.gif?extra=Zk6RGY7SPQOUb1JqPYlEkbK3RfWwQcCs_Et73l_l9mcOT8dcM2pOCs9cQlixxK_e8SgAIKgG6It0mSKhHifFKS4t9xpRbGi7ROhOpmEcQBDRcu69nExG9DmtIQHxDD8aItFSPjoigVD89FjZrfwyycU)
 
